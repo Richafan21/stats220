@@ -3,8 +3,8 @@
 ### Things I **love**
 * Cats
 * Stats(*a lie*)
-* [https://www.youtube.com/watch?v=QwLvrnlfdNo]
+* [This video](https://www.youtube.com/watch?v=QwLvrnlfdNo)
 ### Things I **hate** in ascending order
 1. Snorers
 2. Eggplants
-3. [https://www.youtube.com/watch?v=QwLvrnlfdNo]
+3. [This video](https://www.youtube.com/watch?v=QwLvrnlfdNo)
